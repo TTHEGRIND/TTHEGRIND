@@ -1,8 +1,4 @@
-Sharpness video~] U R THE ONE WHO LIKES FURRY PORN
-05:08 PM[sign ata 🤔] i do
-05:08 PM[sign ata 🤔] NOT
-05:08 PM[sign ata 🤔] LIKE FURRY PORN
-HES LYING HES LYING HES LYING HES LYING[**@germanstare**](https://github.com/germanstare) Is lying HES LYING
+HES LYING HES LYING HES LYING HES LYING[**@germanstare**](https://github.com/germanstare) Is lying HES LYING HE CUT OFF MY OTHER MESSAGES WHERE I SAID I DONT LIKE IT OMGGGGGGGGGGGGGGGGGGGGGG
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀__H̶A̶T̶E̶ ̶L̶I̶S̶T̶__ best fwriends list; [**@germanstare**](https://github.com/germanstare) 
 <p align="center" > This is my only account <p>  <p align="center" > do not copy my ponies yes ok <p>
 
